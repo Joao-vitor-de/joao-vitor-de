@@ -12,5 +12,6 @@ Meu nome é Joao Vitor de Oliveira,tenho 16 anos de idade
 
 @marcelopaludetto
 
-![descrição do GIF](link GIF do Tenor)
---->
+![giphy](https://github.com/user-attachments/assets/3639cfe3-0f23-4403-bf9d-cccf2fdf83eb)
+
+
