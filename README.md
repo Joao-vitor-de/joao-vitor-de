@@ -10,8 +10,8 @@ Meu nome é Joao Vitor de Oliveira,tenho 16 anos de idade
 
 0000112643484xsp@al.educacao.sp.gov.br
 
-@marcelopaludetto
+@joao._.wn
 
 ![giphy](https://github.com/user-attachments/assets/3639cfe3-0f23-4403-bf9d-cccf2fdf83eb)
 
-
+ 
